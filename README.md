@@ -1,0 +1,1 @@
+# How-to-cracked-Glary-Disk-Cleaner-pro
